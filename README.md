@@ -1,2 +1,0 @@
-# paramatmafaction.github.io
-WEBSITE
